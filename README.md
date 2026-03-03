@@ -18,4 +18,4 @@ Coherence Engine for agentic AI
 
 Phase-aware Governance
 
-Contact: Kathryn Sughero sugherosystems@gmail.com
+Contact: Kathryn Sughero - kathryn@sugherosystems.com
